@@ -11,7 +11,7 @@
 
 - 💬 Ask me about **DevOps**
 
-- 📫 How to reach me **chakribiddiki@gmai.com**
+- 📫 How to reach me **chakribiddiki@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
